@@ -1,0 +1,1 @@
+# IshikawaTakehide.github.io
